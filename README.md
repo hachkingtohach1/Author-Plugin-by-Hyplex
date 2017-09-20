@@ -1,2 +1,4 @@
 # Author-Plugin-by-Hyplex
-Plugin build by Hyplex.✓[®]
+Plugin được xây dựng bởi Hyplex.✓ [®]
+Mật khẩu: 0935407638638E68638638AST07638647637555497738663876AUOH0748638667466376376836738
+A.
